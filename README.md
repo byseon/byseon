@@ -22,4 +22,6 @@ I document life through photography.
 ## Links
 
 - [byseon.com](https://byseon.com)
+- [LinkedIn](https://www.linkedin.com/in/seongjin-p/)
+- [Google Scholar](https://scholar.google.com/citations?user=-Bc2U_oAAAAJ&hl)
 - [Instagram](https://instagram.com/seon.made)
